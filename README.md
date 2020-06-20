@@ -1,2 +1,0 @@
-# kromspraak
-valse psychiaters
